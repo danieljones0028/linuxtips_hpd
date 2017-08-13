@@ -1,0 +1,2 @@
+# linuxtips_hpd
+GIROPOPS STRIGUS GIRUS
